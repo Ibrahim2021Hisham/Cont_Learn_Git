@@ -1,1 +1,1 @@
-To leran Github from Route 
+To learn Github from Route 
